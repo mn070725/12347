@@ -38,4 +38,4 @@ JAV HD资源站：每日更新，支持按女优、片名、类型快速检索�
 
 
 
-<span style="display:none;">[Canonical link](  https://github.com/mn070725/12346 ）</span>
+<span style="display:none;">[Canonical link](  https://github.com/mn070725/12347 ）</span>
